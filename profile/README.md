@@ -1,3 +1,5 @@
+![](HF_keyvisual.jpg)
+
 ## Hochfrequenz Unternehmensberatung GmbH
 
 Wir beraten Energieversorger bei strategischen und operativen Themenstellungen.
